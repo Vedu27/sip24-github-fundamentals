@@ -5,7 +5,7 @@ Vedant Patiyane
 
 
 ## Introduction
-i am vedant patiyane currently pursuing btech cyber security form shah and anchor kutchhi engineering college 
+i am vedant patiyane currently pursuing btech cyber security from shah and anchor kutchhi engineering college 
 
 ## Social Media
 - [GitHub](https://github.com/yourusername https://github.com/Vedu27 )
